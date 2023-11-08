@@ -1,0 +1,3 @@
+- Stash an extra 2 x 30 racks of beer in the storage rooms so that you can bring them out just in case
+- Always tell brothers to get to the house 30 minutes before the event is actually supposed to start
+- You should try to do a band party in the future 
