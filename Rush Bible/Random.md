@@ -1,3 +1,5 @@
 - Stash an extra 2 x 30 racks of beer in the storage rooms so that you can bring them out just in case
 - Always tell brothers to get to the house 30 minutes before the event is actually supposed to start
 - You should try to do a band party in the future 
+- When you remind your board to text people make a white text meme with something funny relating to a fraternity and then say "text your list" at the bottom
+	- People are much more open to being reminded/told what to do when it's funny
